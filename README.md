@@ -8,5 +8,7 @@ my chud [Spotify playlist](https://open.spotify.com/playlist/6cH1Rg94lIPIdTZBSn3
 ![](https://file.garden/Zox2fUDb23rJb8Jq/shinj-mecha.gif)
 # Interests
 ### I am more likely to talk about any bolded interests
-1. **Neon Genesis Evangelion**  
-     - Petit Eva: Evangelion@school
+- **Neon Genesis Evangelion**  
+    - Petit Eva: Evangelion@school
+- **Pokemon**
+    - Cobblemon 
