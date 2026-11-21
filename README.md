@@ -5,10 +5,19 @@ I am an EVA unit-01 yumeshipper, if you are uncomfortable with that please don't
 I am <ins>mirrorsharing,</ins>  
 **my [Twitter](https://x.com/Eva01kisser)**  
 my chud [Spotify playlist](https://open.spotify.com/playlist/6cH1Rg94lIPIdTZBSn3cXI) if you're curious  
-![](https://file.garden/Zox2fUDb23rJb8Jq/shinj-mecha.gif)
 # Interests
-### I am more likely to talk about any bolded interests
+![](https://file.garden/Zox2fUDb23rJb8Jq/shinj-mecha.gif)
+### I have more interest in bolded interests
 - **Neon Genesis Evangelion**  
     - Petit Eva: Evangelion@school
 - **Pokemon**
-    - Cobblemon 
+    - Cobblemon
+- **Hollow Knight**
+    - Silksong
+- **Dragon Adventures**
+- Ultrakill
+- **Godzilla**
+- Risk of Rain 2
+- My Little Pony
+
+I also like insects, robots, and dragons.
