@@ -9,4 +9,4 @@ my chud [Spotify playlist](https://open.spotify.com/playlist/6cH1Rg94lIPIdTZBSn3
 # Interests
 ### I am more likely to talk about any bolded interests
 1. **Neon Genesis Evangelion**  
-     _ Petit Eva: Evangelion@school
+     - Petit Eva: Evangelion@school
