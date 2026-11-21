@@ -5,5 +5,8 @@ I am an EVA unit-01 yumeshipper, if you are uncomfortable with that please don't
 I am <ins>mirrorsharing,</ins>  
 **my [Twitter](https://x.com/Eva01kisser)**  
 my chud [Spotify playlist](https://open.spotify.com/playlist/6cH1Rg94lIPIdTZBSn3cXI) if you're curious  
-# Interests
 ![](https://file.garden/Zox2fUDb23rJb8Jq/shinj-mecha.gif)
+# Interests
+### I am more likely to talk about any bolded interests
+1. **Neon Genesis Evangelion**  
+   _ Petit Eva: Evangelion@school
